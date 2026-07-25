@@ -1,1 +1,1 @@
-# Ampas_Dark_System.qrpvvo7m
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
